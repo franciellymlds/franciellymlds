@@ -2,7 +2,7 @@
 
 *sou estudante do alura*
 
-*Nâo pretendo ficar no ramo da tequinologia*
+*Nâo pretendo ficar no ramo da tecnologia*
 
 **lopes.silva.francielly@escola.pr.gov.br**
 
