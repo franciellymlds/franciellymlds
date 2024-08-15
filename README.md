@@ -17,3 +17,11 @@ Minhas marerias preferidas sâo
 -quimica
 
 ![](https://media1.tenor.com/m/6dOf85BKov0AAAAC/haikyuu-anime.gif)
+![](https://media1.tenor.com/m/Qcjg7gRDYnkAAAAC/haikyuu.gif)
+
+
+
+
+
+
+
