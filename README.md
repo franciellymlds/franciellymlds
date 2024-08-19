@@ -4,17 +4,18 @@
 
 *Nâo pretendo ficar no ramo da tecnologia*
 
+###ferramenta de contato 
 **lopes.silva.francielly@escola.pr.gov.br**
 
-Minhas marerias preferidas sâo
+_Minhas marerias preferidas sâo_
 
--matematica
+-matematica💯
 
--Biologia
+-Biologia🌺
 
--física
+-física🏃‍♀️‍➡️
 
--quimica
+-quimica💦
 
 ![](https://media1.tenor.com/m/6dOf85BKov0AAAAC/haikyuu-anime.gif)
 
